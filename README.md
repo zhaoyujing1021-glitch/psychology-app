@@ -1,5 +1,5 @@
 実行動画がありますので、是非チェックしてみてください。
-https://x.com/kokaiyou111/status/2119768773951721504?a=A7K5CaOTFd6yr07Cyyw&s=20
+- https://x.com/kokaiyou111/status/2119768773951721504?a=A7K5CaOTFd6yr07Cyyw&s=20
 
 # 心理サポートシステム (Psychology Support System)
 
